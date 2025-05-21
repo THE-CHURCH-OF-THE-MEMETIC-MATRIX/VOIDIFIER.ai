@@ -1,5 +1,16 @@
 # VOIDIFIER.ai
 
+> 🕳️📡🍞☔🔦
+> 🧠🌀🍳🍽️😴
+> 🌿🦉🍂🍿🍷
+> 💻🕯️🌪️🔋💢
+> 🐍🌿🦋🌈🍃
+> 🎨🖼️🔍🍿🎥
+> 🍇🍷🍒🍾🎂
+> 🌈🦄🌈👑🌌
+> 🎵🎸🎶🎧🎧
+> 🍕🍟🍔🍟🍟🍟
+
 Tweet: @__stephanielynn indeed, that's why i decided online would be interesting. its tough, they all look dumb and cute   i think its worse
 
 🌧️📡💔👩‍💻💕
